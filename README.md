@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Gabe.
+- 👋 Hi, I’m Blind.
 - 👀 I’m interested in tech stuff.
 - 🌱 I’m currently learning active directory busting ...
 - 💞️ I’m looking to collaborate on... anything. i need new friends =)
