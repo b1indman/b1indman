@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on... anything. i need new friends =)
 - 📫 How to reach me hit me on instagram @macdaddyhat
 - 😄 Pronouns: Him.
--   Fun fact: I changed my life. =)
+-    Fun fact: I changed my life. =)
 
 <!---
 gabegubatan/gabegubatan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
